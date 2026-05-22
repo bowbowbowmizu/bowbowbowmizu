@@ -5,10 +5,10 @@ ________________________________________________________________________________
 
 
 
-<div align="center"> interests: </div>
+<div align="center">  <b> interests: </b> </div>
 <div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
 
-<div align="center"> music: </div> 
+<div align="center"> <b> music: </b> </div> 
 <div align="center"> -ateez, radiohead, tnbh, beach house, k.i.z </div>
 
 __________________________________________________________________________________________
@@ -23,7 +23,7 @@ ________________________________________________________________________________
 
 
 
-<div align="center"> dni: </div>
+<div align="center"> <b> dni: </b> </div>
 
 <div align="center"> -basic dni (homophobic comments, racists....) </div> 
 
@@ -37,5 +37,7 @@ ________________________________________________________________________________
 
 
 <div align="center"> amongniigoooo!!! </div>
+
+
 
 <div align="center"> <img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" /> </div> 
