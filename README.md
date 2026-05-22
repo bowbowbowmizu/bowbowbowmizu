@@ -1,41 +1,41 @@
-Haii sillies!!!
-i´m anki and a rythm game enjoyer ~
+<div align="center"> Haii sillies!!! </div> 
+<div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
 
 __________________________________________________________________________________________
 
 
 
-interests:
-pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba
+<div align="center"> interests: </div>
+<div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
 
-music:
--ateez, radiohead, tnbh, beach house, k.i.z
-
-__________________________________________________________________________________________
-
-
-<img width="1600" height="1200" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
+<div align="center"> music: </div> 
+<div align="center"> -ateez, radiohead, tnbh, beach house, k.i.z </div>
 
 __________________________________________________________________________________________
 
 
-please always feel free to c+h or int!!! i love to have moots ><
-
-
-
-dni:
-
--basic dni (homophobic comments, racists....)
-
--under 16y (I´M AND ADULT!!) > please be carefull peeps
-
--agressive people
-
--don´t be mean pls
+<img width="900" height="700" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
 
 __________________________________________________________________________________________
 
 
-amongniigoooo!!!
+<div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
+
+
+
+<div align="center"> dni: </div>
+
+<div align="center"> -basic dni (homophobic comments, racists....) </div> 
+
+<div align="center"> -under 16y (I´M AN ADULT!!) > please be carefull peeps </div> 
+
+<div align="center"> -agressive people </div> 
+
+<div align="center"> -don´t be mean pls </div> 
+
+__________________________________________________________________________________________
+
+
+<div align="center"> amongniigoooo!!! </div>
 
 <img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" />
