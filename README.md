@@ -1,16 +1,22 @@
-## Hi there 👋
+Haii sillies!!!
+i´m anki and a rythm game enjoyer ~
 
-<!--
-**bowbowbowmizu/bowbowbowmizu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="1920" height="1080" alt="grafik" src="https://github.com/user-attachments/assets/e2503b63-ce5e-4003-9e00-262df9de49ad" />
 
-Here are some ideas to get you started:
+interests:
+pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba
+music:
+-ateez, radiohead, tnbh, beach house, k.i.z
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="1600" height="1200" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
+
+please always feel free to c+h or int!!! i love to have moots ><
+
+dni:
+-basic dni (homophobic comments, racists....)
+-under 16y (I´M AND ADULT!!) > please be carefull peeps
+-agressive people
+-don´t be mean pls
+
+amongniigoooo!!!
+<img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" />
