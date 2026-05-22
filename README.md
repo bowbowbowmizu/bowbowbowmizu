@@ -1,7 +1,7 @@
 Haii sillies!!!
 i´m anki and a rythm game enjoyer ~
 
-<img width="1920" height="1080" alt="grafik" src="https://github.com/user-attachments/assets/e2503b63-ce5e-4003-9e00-262df9de49ad" />
+
 
 interests:
 pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba
