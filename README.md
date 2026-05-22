@@ -14,7 +14,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<img width="900" height="700" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
+<img width="500" height="300" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
 
 __________________________________________________________________________________________
 
@@ -38,4 +38,4 @@ ________________________________________________________________________________
 
 <div align="center"> amongniigoooo!!! </div>
 
-<img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" />
+<div align="center"> <img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" /> </div> 
