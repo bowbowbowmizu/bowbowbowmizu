@@ -1,6 +1,8 @@
 Haii sillies!!!
 i´m anki and a rythm game enjoyer ~
 
+__________________________________________________________________________________________
+
 
 
 interests:
@@ -9,9 +11,17 @@ pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba
 music:
 -ateez, radiohead, tnbh, beach house, k.i.z
 
+__________________________________________________________________________________________
+
+
 <img width="1600" height="1200" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" />
 
+__________________________________________________________________________________________
+
+
 please always feel free to c+h or int!!! i love to have moots ><
+
+
 
 dni:
 
@@ -23,7 +33,7 @@ dni:
 
 -don´t be mean pls
 
-
+__________________________________________________________________________________________
 
 
 amongniigoooo!!!
