@@ -14,10 +14,17 @@ music:
 please always feel free to c+h or int!!! i love to have moots ><
 
 dni:
+
 -basic dni (homophobic comments, racists....)
+
 -under 16y (I´M AND ADULT!!) > please be carefull peeps
+
 -agressive people
+
 -don´t be mean pls
+
+
+
 
 amongniigoooo!!!
 
