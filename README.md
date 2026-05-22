@@ -15,7 +15,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="500" height="300" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" /> </div> 
+<div align="center"> <img width="500" height="400" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" /> </div> 
 
 __________________________________________________________________________________________
 
