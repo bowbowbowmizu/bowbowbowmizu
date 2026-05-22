@@ -8,6 +8,7 @@ ________________________________________________________________________________
 
 <div align="center">  <b> interests: </b> </div>
 <div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
+<div align="center"> i love tornados, i can tell u everything hehe </div>
 
 <div align="center"> <b> music: </b> </div> 
 <div align="center"> -ateez, radiohead, tnbh, beach house, k.i.z </div>
