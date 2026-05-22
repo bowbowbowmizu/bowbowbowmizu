@@ -5,6 +5,7 @@ i´m anki and a rythm game enjoyer ~
 
 interests:
 pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba
+
 music:
 -ateez, radiohead, tnbh, beach house, k.i.z
 
@@ -19,4 +20,5 @@ dni:
 -don´t be mean pls
 
 amongniigoooo!!!
+
 <img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" />
