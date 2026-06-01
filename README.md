@@ -1,6 +1,7 @@
 <div align="center"> Haii sillies!!! </div> 
 <div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
+<div align="center"> my kins: !!!starlight glimmer!!!, hachi, yoshiki, mizuki akiyama, nozomi tojo, abrey, kaveh >< </div>
 
 __________________________________________________________________________________________
 
