@@ -12,12 +12,12 @@ ________________________________________________________________________________
 <div align="center"> i love tornados, i can tell u everything hehe </div>
 
 <div align="center"> <b> music: </b> </div> 
-<div align="center"> -ateez, radiohead, tnbh, beach house, k.i.z </div>
+<div align="center"> -ateez, radiohead, muse, k.i.z </div>
 
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="500" height="350" alt="grafik" src="https://github.com/user-attachments/assets/e6b757cf-ad99-47b4-8b86-193f5f319dfc" /> </div> 
+<div align="center"> <img width="500" height="350" alt="grafik" src="https://i.makeagif.com/media/5-05-2016/TbqG4g.mp4" /> </div> 
 
 __________________________________________________________________________________________
 
