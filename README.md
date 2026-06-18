@@ -17,7 +17,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="500" height="350" alt="grafik" src="https://i.makeagif.com/media/5-05-2016/TbqG4g.mp4" /> </div> 
+<div align="center"> <img width="500" height="350" alt="grafik" src="https://media.discordapp.net/attachments/1499118564278407228/1517154165170897098/mizi_and_akiyama_mizuki_project_sekai_and_1_more_drawn_by_negai_kara__16212a5676c10d9e4473ca34dc6b5a9d.png?ex=6a353f6c&is=6a33edec&hm=18472cb712a93bf73a33c995aad234eafa82ac566d89a04fbd15cef570937666&=&format=webp&quality=lossless&width=727&height=545" /> </div> 
 
 __________________________________________________________________________________________
 
