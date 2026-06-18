@@ -1,4 +1,4 @@
-![animated](https://i.makeagif.com/media/5-05-2016/TbgG4g.png)
+![animated](<img width="400" height="224" alt="swxyahhgif" src="https://github.com/user-attachments/assets/de40797e-f5d8-4d2e-9ded-1b38ed96f923" />)
 <div align="center"> Haii sillies!!! </div> 
 <div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
