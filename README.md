@@ -1,3 +1,7 @@
+<div align="center"> <img width="500" height="350" alt="grafik" src="https://i.pinimg.com/1200x/63/9c/da/639cda218ab22f72fb7f6f0045b2ce56.jpg" /> </div>
+
+__________________________________________________________________________________________
+
 <div align="center"> Haii sillies!!! </div> 
 <div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
@@ -17,7 +21,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="500" height="400" alt="grafik" src="https://i.pinimg.com/originals/93/c6/b8/93c6b89beca0105eaf392a5ff530e00d.jpg" /> </div>
+<div align="center"> <img width="500" height="350" alt="grafik" src="https://i.pinimg.com/originals/93/c6/b8/93c6b89beca0105eaf392a5ff530e00d.jpg" /> </div>
 
 
 __________________________________________________________________________________________
