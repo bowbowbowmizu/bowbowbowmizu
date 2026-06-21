@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="500" height="500" alt="grafik" src="https://cdn.donmai.us/original/d6/2d/d62d8ef509e834d334dbba72ca4342df.jpg" /> </div>
+<div align="center"> <img width="300" height="300" alt="grafik" src="https://cdn.donmai.us/original/d6/2d/d62d8ef509e834d334dbba72ca4342df.jpg" /> </div>
 
 __________________________________________________________________________________________
 
