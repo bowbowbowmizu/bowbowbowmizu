@@ -18,8 +18,8 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="200" height="150" alt="grafik" src="https://media.discordapp.net/attachments/1499118564278407228/1517154165170897098/mizi_and_akiyama_mizuki_project_sekai_and_1_more_drawn_by_negai_kara__16212a5676c10d9e4473ca34dc6b5a9d.png?ex=6a353f6c&is=6a33edec&hm=18472cb712a93bf73a33c995aad234eafa82ac566d89a04fbd15cef570937666&=&format=webp&quality=lossless&width=727&height=545" /> </div>
-<div align="center"> <img width="200" height="150" alt="grafik" src="https://media.discordapp.net/attachments/1499118564278407228/1517154165850112211/sua_and_shinonome_ena_project_sekai_and_1_more_drawn_by_negai_kara__d05ebdcc064995e35bb741e5c1e4909f.png?ex=6a353f6c&is=6a33edec&hm=0f23bcd86b44f448ab91bb63c00b99397eac9279b82f877b4b4266b4efd85bfa&=&format=webp&quality=lossless&width=727&height=545" /> </div> 
+<div align="center"> <img width="200" height="150" alt="grafik" src="https://i.ytimg.com/vi/bOxSdGxt3Ho/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLALDcRIM58U91Uxtv7a3kxJieqXcw" /> </div>
+
 
 __________________________________________________________________________________________
 
