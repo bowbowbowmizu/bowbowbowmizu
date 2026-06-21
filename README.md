@@ -1,4 +1,4 @@
-![animated](<img width="400" height="224" alt="swxyahhgif" src="https://github.com/user-attachments/assets/c70d81af-1686-4b00-bbde-14b3ed1a6824" />)
+
 <div align="center"> Haii sillies!!! </div> 
 <div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
