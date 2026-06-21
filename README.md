@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="500" height="500" alt="grafik" src="https://i.pinimg.com/236x/5d/98/9d/5d989dde94388e68c983fbdfc6cd11d6.jpg" /> </div>
+<div align="center"> <img width="500" height="500" alt="grafik" src="https://cdn.donmai.us/original/d6/2d/d62d8ef509e834d334dbba72ca4342df.jpg" /> </div>
 
 __________________________________________________________________________________________
 
@@ -22,7 +22,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="750" height="500" alt="grafik" src="https://i.pinimg.com/originals/93/c6/b8/93c6b89beca0105eaf392a5ff530e00d.jpg" /> </div>
+<div align="center"> <img width="300" height="300" alt="grafik" src="https://i.pinimg.com/236x/5d/98/9d/5d989dde94388e68c983fbdfc6cd11d6.jpg" /> </div>
 
 
 __________________________________________________________________________________________
