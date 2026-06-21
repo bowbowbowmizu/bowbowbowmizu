@@ -17,7 +17,7 @@ ________________________________________________________________________________
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="300" height="50" alt="grafik" src="https://i.pinimg.com/originals/93/c6/b8/93c6b89beca0105eaf392a5ff530e00d.jpg" /> </div>
+<div align="center"> <img width="300" height="150" alt="grafik" src="https://i.pinimg.com/originals/93/c6/b8/93c6b89beca0105eaf392a5ff530e00d.jpg" /> </div>
 
 
 __________________________________________________________________________________________
