@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="300" height="300" alt="grafik" src="https://cdn.donmai.us/original/d6/2d/d62d8ef509e834d334dbba72ca4342df.jpg" /> </div>
+<div align="center"> <img width="800" height="300" alt="grafik" src="https://i.pinimg.com/736x/14/c7/fd/14c7fde49a7149136e00eac851879ab3.jpg" /> </div>
 
 __________________________________________________________________________________________
 
@@ -18,11 +18,6 @@ ________________________________________________________________________________
 <div align="center"> <b> music: </b> </div> 
 <div align="center"> -ateez, radiohead, muse, k.i.z, soad </div>
 
-__________________________________________________________________________________________
-
-
-<div align="center"> <img width="300" height="300" alt="grafik" src="https://i.pinimg.com/236x/5d/98/9d/5d989dde94388e68c983fbdfc6cd11d6.jpg" /> </div>
-
 
 __________________________________________________________________________________________
 
@@ -39,11 +34,3 @@ ________________________________________________________________________________
 
 <div align="center"> -don´t be mean pls </div> 
 
-__________________________________________________________________________________________
-
-
-<div align="center"> amongniigoooo!!! </div>
-
-
-
-<div align="center"> <img width="283" height="195" alt="Screenshot 2026-05-23 003342" src="https://github.com/user-attachments/assets/28dd1a46-91aa-41b7-8c69-cee9d7de6ec7" /> </div> 
