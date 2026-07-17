@@ -4,7 +4,7 @@
 
 
 <div align="center"> mostly off-tab due to work </div> 
-<div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
+<div align="center"> please always feel free to c+h or int anytime:) </div>
 <div align="center"> my kins: !!!starlight glimmer!!!, hachi, yoshiki, mizuki akiyama, nozomi tojo, aubrey, kaveh >< </div>
 
 __________________________________________________________________________________________
@@ -28,7 +28,7 @@ ________________________________________________________________________________
 
 <div align="center"> -basic dni (homophobic comments, racists....) </div> 
 
-<div align="center"> -under 16y (I´M AN ADULT!!) > please be carefull peeps </div> 
+<div align="center"> -under 16y (I´M AN ADULT!!) > please be careful peeps </div> 
 
 <div align="center"> -agressive people </div> 
 
