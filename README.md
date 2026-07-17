@@ -1,7 +1,7 @@
 
 <div align="center"> <img width="800" height="300" alt="grafik" src="https://i.pinimg.com/736x/14/c7/fd/14c7fde49a7149136e00eac851879ab3.jpg" /> </div>
 
-__________________________________________________________________________________________
+
 
 <div align="center"> mostly off-tab due to work </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
