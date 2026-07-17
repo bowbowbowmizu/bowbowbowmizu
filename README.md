@@ -5,12 +5,12 @@
 
 <div align="center"> mostly off-tab due to work </div> 
 <div align="center"> please always feel free to c+h or int anytime:) </div>
-<div align="center"> <img width="200" height="200" alt="grafik" src="https://preview.redd.it/saw-a-post-about-starlight-glimmer-hate-v0-nxerb069fxrg1.png?width=640&crop=smart&auto=webp&s=eb0bf682d484328a00b4e7d8fef72695b385383b" /> </div>
+
 
 __________________________________________________________________________________________
 
 
-
+<div align="center"> <img width="200" height="200" alt="grafik" src="https://preview.redd.it/saw-a-post-about-starlight-glimmer-hate-v0-nxerb069fxrg1.png?width=640&crop=smart&auto=webp&s=eb0bf682d484328a00b4e7d8fef72695b385383b" /> </div>
 <div align="center">  <b> interests: </b> </div>
 <div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
 <div align="center"> i love tornados, i can tell u everything hehe </div>
