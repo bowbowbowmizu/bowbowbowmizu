@@ -3,8 +3,7 @@
 
 __________________________________________________________________________________________
 
-<div align="center"> Haii sillies!!! </div> 
-<div align="center"> i´m anki and a rythm game enjoyer ~ </div> 
+<div align="center"> mostly off-tab due to work </div> 
 <div align="center"> please always feel free to c+h or int!!! i love to have moots >< </div>
 <div align="center"> my kins: !!!starlight glimmer!!!, hachi, yoshiki, mizuki akiyama, nozomi tojo, aubrey, kaveh >< </div>
 
@@ -17,7 +16,7 @@ ________________________________________________________________________________
 <div align="center"> i love tornados, i can tell u everything hehe </div>
 
 <div align="center"> <b> music: </b> </div> 
-<div align="center"> -ateez, radiohead, muse, k.i.z </div>
+<div align="center"> -ateez, radiohead, muse, k.i.z, soad </div>
 
 __________________________________________________________________________________________
 
