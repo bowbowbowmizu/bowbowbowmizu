@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="220" height="150" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
+<div align="center"> <img width="700" height="300" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
 
 
 <div align="center"> hai! i´m anki </div> 
@@ -10,7 +10,7 @@
 __________________________________________________________________________________________
 
 
-<div align="center"> <img width="120" height="50" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUpO42FxLpZEWgIOj9ykMVxONaXlQQ8yEUoL36C-vsyrcNPWMnSZDT2sM&s=10" /> </div>
+<div align="center"> <img width="400" height="250" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUpO42FxLpZEWgIOj9ykMVxONaXlQQ8yEUoL36C-vsyrcNPWMnSZDT2sM&s=10" /> </div>
 <div align="center">  <b> interests: </b> </div>
 <div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
 
