@@ -7,10 +7,6 @@
 <div align="center"> please always feel free to c+h or int anytime:) </div>
 
 
-__________________________________________________________________________________________
-
-
-<div align="center"> <img width="400" height="250" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTUpO42FxLpZEWgIOj9ykMVxONaXlQQ8yEUoL36C-vsyrcNPWMnSZDT2sM&s=10" /> </div>
 <div align="center">  <b> interests: </b> </div>
 <div align="center"> pjsk, llsif, fnaf, mlp, pkm, omori, minecraft, jjba </div>
 
