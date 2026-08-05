@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="700" height="300" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
+<div align="center"> <img width="600" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
 
 
 <div align="center"> hai! i´m anki </div> 
@@ -16,11 +16,7 @@ ________________________________________________________________________________
 
 
 
-
-
 __________________________________________________________________________________________
-
-
 
 
 <div align="center"> <b> dni: </b> </div>
