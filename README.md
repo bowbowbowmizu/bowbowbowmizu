@@ -6,15 +6,11 @@
 <div align="center"> mostly off-tab due to work </div> 
 <div align="center"> please always feel free to c+h or int anytime:) </div>
 
+__________________________________________________________________________________________
+
 
 <div align="center">  <b> interests: </b> </div>
 <div align="center"> jjba, pjsk, fnaf, pokemon, llsif, mlp </div>
-<div align="center"> games: minecraft, lol, omori & other horror games </div>
-
-
-
-__________________________________________________________________________________________
-
 
 <div align="center"> <b> dni: </b> </div>
 
