@@ -6,7 +6,11 @@
 <div align="center"> mostly off-tab due to work </div> 
 <div align="center"> please always feel free to c+h or int anytime ☂o(•ω•。) </div>
 
-<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 </div> 
+
+
+<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 </div> 
+
+
 
 
 <div align="center">  <b> ⋆⸜✮₊˚ interests: </b> </div>
