@@ -1,5 +1,5 @@
 
-<div> <img width="600" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
+<div> <img width="700" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
 
 
 <div> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
