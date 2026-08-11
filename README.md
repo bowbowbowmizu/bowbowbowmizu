@@ -2,17 +2,17 @@
 <div align="center"> <img width="600" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
 
 
-<div align="center"> hai! call me anki </div> 
+<div align="center"> hai! call me ankii ˖ ݁♬⋆.˚𝄞 </div> 
 <div align="center"> mostly off-tab due to work </div> 
-<div align="center"> please always feel free to c+h or int anytime:) </div>
+<div align="center"> please always feel free to c+h or int anytime ☂o(•ω•。) </div>
 
-__________________________________________________________________________________________
+<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 </div> 
 
 
-<div align="center">  <b> interests: </b> </div>
+<div align="center">  <b> ⋆⸜✮₊˚ interests: </b> </div>
 <div align="center"> jjba, pjsk, fnaf, pokemon, llsif, mlp </div>
 
-<div align="center"> <b> dni: </b> </div>
+<div align="center"> <b> ⋆⸜✮₊˚ dni: </b> </div>
 
 <div align="center"> -basic dni (homophobic comments, racists....) </div> 
 
