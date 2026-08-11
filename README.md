@@ -2,9 +2,8 @@
 <div align="center"> <img width="600" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
 
 
-<div align="center"> hai! call me ankii ˖ ݁♬⋆.˚𝄞 </div> 
-<div align="center"> mostly off-tab due to work </div> 
-<div align="center"> please always feel free to c+h or int anytime ☂o(•ω•。) </div>
+<div align="center"> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
+<div align="center"> ˚｡⋆ ᴘʟᴇᴀꜱᴇ ᴀʟᴡᴀʏꜱ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄ+ʜ ᴏʀ ɪɴᴛ ᴀɴʏᴛɪᴍᴇ ☂o(•ω•。) </div>
 
 
 
@@ -13,15 +12,15 @@
 
 
 
-<div align="center">  <b> ⋆⸜✮₊˚ interests: </b> </div>
-<div align="center"> jjba, pjsk, fnaf, pokemon, llsif, mlp </div>
+<div align="center">  <b> ⋆⸜✮₊˚ ɪɴᴛᴇʀᴇꜱᴛꜱ: </b> </div>
+<div align="center"> ᴊᴊʙᴀ, ᴘᴊꜱᴋ, ꜰɴᴀꜰ, ᴘᴏᴋᴇᴍᴏɴ, ʟʟꜱɪꜰ, ᴍʟᴘ </div>
 
-<div align="center"> <b> ⋆⸜✮₊˚ dni: </b> </div>
+<div align="center"> <b> ⋆⸜✮₊˚ ᴅɴɪ: </b> </div>
 
-<div align="center"> -basic dni (homophobic comments, racists....) </div> 
+<div align="center"> ˚｡⋆ ─ʙᴀꜱɪᴄ ᴅɴɪ (ʜᴏᴍᴏᴘʜᴏʙɪᴄ ᴄᴏᴍᴍᴇɴᴛꜱ, ʀᴀᴄɪꜱᴛꜱ....) </div> 
 
-<div align="center"> -under 16y iwc!!! i´m 23 and i want it to be communicated if you around that age or younger!! this is MANDATORY!!!! </div> 
+<div align="center"> ˚｡⋆ ─ᴜɴᴅᴇʀ 16ʏ ɪᴡᴄ!!! ɪ´ᴍ 23 ᴀɴᴅ ɪ ᴡᴀɴᴛ ɪᴛ ᴛᴏ ʙᴇ ᴄᴏᴍᴍᴜɴɪᴄᴀᴛᴇᴅ ɪꜰ ʏᴏᴜ ᴀʀᴏᴜɴᴅ ᴛʜᴀᴛ ᴀɢᴇ ᴏʀ ʏᴏᴜɴɢᴇʀ!! ᴛʜɪꜱ ɪꜱ ᴍᴀɴᴅᴀᴛᴏʀʏ!!!! </div> 
 
-<div align="center"> -agressive people: don´t be mean pls </div> 
+<div align="center"> ˚｡⋆ ─ᴀɢʀᴇꜱꜱɪᴠᴇ ᴘᴇᴏᴘʟᴇ: ᴅᴏɴ´ᴛ ʙᴇ ᴍᴇᴀɴ ᴘʟꜱ </div> 
 
 
