@@ -23,6 +23,6 @@
 
 <div> ˚｡⋆ ─ᴀɢʀᴇꜱꜱɪᴠᴇ ᴘᴇᴏᴘʟᴇ: ᴅᴏɴ´ᴛ ʙᴇ ᴍᴇᴀɴ ᴘʟꜱ </div> 
 
-<div align="center"> <img width="450" height="200" alt="grafik" src="https://github.com/user-attachments/assets/11681579-00d9-4fad-b706-fcc1e75032f4" </div>
+<div align="center"> <img width="350" height="200" alt="grafik" src="https://github.com/user-attachments/assets/11681579-00d9-4fad-b706-fcc1e75032f4" </div>
 
 
