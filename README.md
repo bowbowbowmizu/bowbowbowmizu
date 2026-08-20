@@ -1,5 +1,4 @@
-
-<div align="center"> <img width="500" height="180" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" /> </div>
+<div align="center"> <img width="600" height="300" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5nnrCx5eFajVQrefjySy1hU2AjfaZjoN14GpsNCBtaUdU8CuBwKLxOzM&s=10" </div>
 
 
 <div> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
@@ -8,8 +7,8 @@
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
-<div align="center"> <img width="800" height="400" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5nnrCx5eFajVQrefjySy1hU2AjfaZjoN14GpsNCBtaUdU8CuBwKLxOzM&s=10" </div>
 
+<div align="center"> <img width="500" height="180" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" /> </div>
 
 
 <div>  <b> ⋆⸜✮₊˚ ɪɴᴛᴇʀᴇꜱᴛꜱ: </b> </div>
