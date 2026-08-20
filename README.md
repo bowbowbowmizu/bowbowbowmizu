@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="500" height="150" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" /> </div>
+<div align="center"> <img width="500" height="180" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" /> </div>
 
 
 <div> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
@@ -23,6 +23,6 @@
 
 <div> ˚｡⋆ ─ᴀɢʀᴇꜱꜱɪᴠᴇ ᴘᴇᴏᴘʟᴇ: ᴅᴏɴ´ᴛ ʙᴇ ᴍᴇᴀɴ ᴘʟꜱ </div> 
 
-<div align="center"> <img width="350" height="200" alt="grafik" src="https://github.com/user-attachments/assets/11681579-00d9-4fad-b706-fcc1e75032f4" </div>
+<div align="center"> <img width="800" height="200" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5nnrCx5eFajVQrefjySy1hU2AjfaZjoN14GpsNCBtaUdU8CuBwKLxOzM&s=10" </div>
 
 
