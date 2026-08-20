@@ -8,7 +8,7 @@
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
-
+<div align="center"> <img width="800" height="400" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5nnrCx5eFajVQrefjySy1hU2AjfaZjoN14GpsNCBtaUdU8CuBwKLxOzM&s=10" </div>
 
 
 
@@ -23,6 +23,5 @@
 
 <div> ˚｡⋆ ─ᴀɢʀᴇꜱꜱɪᴠᴇ ᴘᴇᴏᴘʟᴇ: ᴅᴏɴ´ᴛ ʙᴇ ᴍᴇᴀɴ ᴘʟꜱ </div> 
 
-<div align="center"> <img width="800" height="200" alt="grafik" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5nnrCx5eFajVQrefjySy1hU2AjfaZjoN14GpsNCBtaUdU8CuBwKLxOzM&s=10" </div>
 
 
