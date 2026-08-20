@@ -1,5 +1,5 @@
 
-<div align="center"> <img width="700" height="250" alt="grafik" src="https://github.com/user-attachments/assets/579c8d70-0cc8-49e2-9c3a-4b91125ee9aa" /> </div>
+<div align="center"> <img width="700" height="250" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" /> </div>
 
 
 <div> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
