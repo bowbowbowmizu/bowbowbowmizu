@@ -1,4 +1,4 @@
-<div align="center"> <img width="400" height="200" alt="grafik" src="https://static.jojowiki.com/images/thumb/7/7a/latest/20210402093631/Joshu_Yasuho_Chapter1.jpg/446px-Joshu_Yasuho_Chapter1.jpg" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTkArhMGQstV_60ahIc_Ko5QhDeMNTf91TZPP7aV5ueB383QxAS-MeALCSv&s=10" </div>
+<div align="center"> <img width="400" height="200" alt="grafik" src="https://static.jojowiki.com/images/thumb/7/7a/latest/20210402093631/Joshu_Yasuho_Chapter1.jpg/446px-Joshu_Yasuho_Chapter1.jpg" /> <img width="400" height="200" alt="grafik"  src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTkArhMGQstV_60ahIc_Ko5QhDeMNTf91TZPP7aV5ueB383QxAS-MeALCSv&s=10" /> </div>
 
 
 <div> ˚｡⋆ ᴍᴏꜱᴛʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴅᴜᴇ ᴛᴏ ᴡᴏʀᴋ </div> 
