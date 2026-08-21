@@ -24,7 +24,10 @@
 <div> ˚｡⋆ ─ᴀɢʀᴇꜱꜱɪᴠᴇ ᴘᴇᴏᴘʟᴇ: ᴅᴏɴ´ᴛ ʙᴇ ᴍᴇᴀɴ ᴘʟꜱ </div> 
 
 
-<div align="left"> <img width="400" height="180" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" />  <img width="400" height="180" alt="grafik" src="https://preview.redd.it/whats-everyones-option-on-aubrey-rw-v0-dk6c54pt8wqc1.jpeg?auto=webp&s=c886955dc0fef086d6fdff2b033fca20c97b1984"  /> </div>
+<div align="center"> <img width="400" height="180" alt="grafik" src="https://64.media.tumblr.com/eaaf41b895509f9797a9e2eec2b60f26/76fc5c6ec4be7bee-84/s500x750/417180f2895341c94df6ccbf934f29a5af7af089.pnj" />  <img width="400" height="180" alt="grafik" src="https://preview.redd.it/whats-everyones-option-on-aubrey-rw-v0-dk6c54pt8wqc1.jpeg?auto=webp&s=c886955dc0fef086d6fdff2b033fca20c97b1984"  /> </div>
 
-<div align="center"> <img width="600" height="150" alt="grafik" src="https://i.pinimg.com/736x/57/26/b0/5726b028428232ad7e158aa02688b019.jpg" /> </div>
+<div align="center"> <img width="400" height="180" alt="grafik" src="https://i.pinimg.com/736x/57/26/b0/5726b028428232ad7e158aa02688b019.jpg" />  <img width="400" height="180" alt="grafik" src="https://i.pinimg.com/736x/df/89/3c/df893ca4c12ff303a77fc18fe15a1c40.jpg"  /> </div>
+
+
+
 
