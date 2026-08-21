@@ -9,7 +9,7 @@
 
 
 
-<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
+<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
 
 
 
@@ -31,7 +31,7 @@
 
 <div align="center"> <img width="300" height="150" alt="grafik" src="https://i.pinimg.com/736x/57/26/b0/5726b028428232ad7e158aa02688b019.jpg" />  <img width="300" height="150" alt="grafik" src="https://i.pinimg.com/736x/df/89/3c/df893ca4c12ff303a77fc18fe15a1c40.jpg"  /> </div>
 
-<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
+<div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
 
 
 
