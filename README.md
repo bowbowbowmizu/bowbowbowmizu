@@ -8,7 +8,7 @@
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
 
-<div align="center"> <img width="600" height="200" alt="grafik" src="https://i.pinimg.com/736x/c4/93/8f/c4938faa8ac73a081e3af5b175903a83.jpg" /> </div>
+<div align="center"> <img width="400" height="150" alt="grafik" src="https://i.pinimg.com/736x/c4/93/8f/c4938faa8ac73a081e3af5b175903a83.jpg" /> </div>
 
 
 <div>  <b> ⋆⸜✮₊˚ ɪɴᴛᴇʀᴇꜱᴛꜱ: </b> </div>
