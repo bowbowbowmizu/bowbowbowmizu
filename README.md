@@ -1,4 +1,4 @@
-<div align="center"> <img width="200" height="600" alt="grafik"  src="https://i.schoolido.lu/cards/transparent/454idolizedTransparent.png" />    </div>
+<div align="center"> <img width="350" height="600" alt="grafik"  src="https://i.schoolido.lu/cards/transparent/454idolizedTransparent.png" />    </div>
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
