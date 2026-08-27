@@ -1,4 +1,4 @@
-<div align="center"> <img width="500" height="600" alt="grafik"  src="https://www.pngitem.com/pimgs/m/100-1001868_transparent-nozomi-tojo-png-love-live-nozomi-marine.png" />    </div>
+<div align="center"> <img width="800" height="500" alt="grafik"  src="https://i.idol.st/u/still/transparent/102Still-Toujou-Nozomi-w9gr4p.png" />    </div>
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
