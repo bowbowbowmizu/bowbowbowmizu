@@ -1,4 +1,4 @@
-<div align="center"> <img width="200" height="600" alt="grafik"  src="[https://i.pinimg.com/736x/01/94/06/0194066f1facd6aa1cf2c6c68fce7a39.jpg](https://www.pngkey.com/png/full/156-1569680_nozomi-tojo-series-love-live-cyber-nozomi.png)" />    </div>
+<div align="center"> <img width="200" height="600" alt="grafik"  src="https://i.schoolido.lu/cards/transparent/454idolizedTransparent.png" />    </div>
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
