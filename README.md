@@ -1,4 +1,4 @@
-<div align="center"> <img width="500" height="600" alt="grafik"  src="https://i.schoolido.lu/cards/transparent/454idolizedTransparent.png" />    </div>
+<div align="center"> <img width="500" height="600" alt="grafik"  src="https://www.pngitem.com/pimgs/m/100-1001868_transparent-nozomi-tojo-png-love-live-nozomi-marine.png" />    </div>
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
