@@ -1,4 +1,4 @@
-<div align="center"> <img width="800" height="450" alt="grafik"  src="https://i.idol.st/u/still/transparent/102Still-Toujou-Nozomi-w9gr4p.png" />    </div>
+
 
 
 <div align="center"> 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 𓆞 𓆝 𓆟 </div>
