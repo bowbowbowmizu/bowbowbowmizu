@@ -1,6 +1,6 @@
-<p align="center"> <img src="https://media.tenor.com/OCJgkh2ohEAAAAAM/giratina-nom-nom.gif"/> 
+<p align="center"> <img src="https://i.pinimg.com/originals/ba/0f/cc/ba0fccc93b702e6e61e76a01c8736278.gif"/> 
 <div align="center"> ᴄʜᴇᴄᴋ ʀᴇɴᴛʀʏ ꜰᴏʀ ɪɴꜰᴏ! ^_^   </div>
-<p align="center"> <img src="https://i.idol.st/u/still/transparent/102Still-Toujou-Nozomi-w9gr4p.png"/> 
+<p align="center"> <img src="https://cdn.mobalytics.gg/assets/zzz/images/mindscape/yuzuha-full.webp"/> 
 
 
 
