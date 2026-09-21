@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://64.media.tumblr.com/40c767bb476242e496e68d5865d88df0/d0a08b2841b445d2-e1/s540x810/fb1618aa38fb9408fe505ac042747624674694dd.gif"/> 
+<p align="center"> <img src="https://64.media.tumblr.com/de8483c4f983fe64e692aeb580cea51e/b060c0306aab973e-08/s540x810/fa87efb53fa54f602a2f4db62d4da7bee0e89995.gif"/> 
 <div align="center"> ᴄʜᴇᴄᴋ ʀᴇɴᴛʀʏ ꜰᴏʀ ɪɴꜰᴏ! ^_^   </div>
 <p align="center"> <img src="https://lostone.kirara.ca/card/navi_1046_t.png"/> 
 
